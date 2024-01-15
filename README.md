@@ -7,5 +7,3 @@ Marusya and Yasha - the best cats in the world!
 Нужно отклонить пуш в мастер
 
 Отклонить блять!
-
-Нахуй все заблокировали вообще
